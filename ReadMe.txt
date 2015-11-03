@@ -5,4 +5,4 @@ Thor Sørensen
 Ahmad "Arab-G" Abdo
 Thor "The fucking wanker" Sørensen 
 Hans Kristian "MasterHK" Møller
-
+Jes Lindekilde Johannsen
