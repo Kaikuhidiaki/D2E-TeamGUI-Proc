@@ -1,3 +1,3 @@
 Sonni Jensen
-Rasmus "The Poop" Frosted
-Thor Sørensen
+Rasmus "The King" Frosted
+Thor "The fucking wanker" Sørensen 
