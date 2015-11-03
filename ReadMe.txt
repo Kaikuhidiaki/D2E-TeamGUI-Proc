@@ -1,3 +1,4 @@
 Sonni Jensen
 Rasmus "The King" Frosted
-Thor "The fucking wanker" Sørensen 
+Thor Sørensen
+Ahmad Abdo
